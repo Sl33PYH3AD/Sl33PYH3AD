@@ -1,11 +1,11 @@
  ˗ˏˋ ★ ˎˊ˗
 
-helloo!!
+- helloo!!
 
-|i'm Sleepy/SleppyHead ✿ {she/her}|
-|Melancholy, introvert, INTP|
-|i'll post here occasionally,so din't expect any cool stuff here|
-|;]|
+- |i'm Sleepy/SleppyHead ✿ {she/her}|
+- |Melancholy, introvert, INTP|
+- |i'll post here occasionally,so din't expect any cool stuff here|
+- |;]|
 
  ˗ˏˋ ★ ˎˊ˗
 
