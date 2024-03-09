@@ -1,9 +1,14 @@
  ˗ˏˋ ★ ˎˊ˗
 
-Приветик!!
+helloo!!
 
-|Я Слипи/СлипиХед ✿ {she/her}|
-|Меланхолик, Интроверт, INTP|
+|i'm Sleepy/SleppyHead ✿ {she/her}|
+|Melancholy, introvert, INTP|
+|i'll post here occasionally,so din't expect any cool stuff here|
+|;]|
+
+ ˗ˏˋ ★ ˎˊ˗
+
 
 <!---
 Sl33PYH3AD/Sl33PYH3AD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
