@@ -3,8 +3,8 @@
 - helloo!!
 
 - |i'm Sleepy/SleppyHead ✿ {she/her}|
-- |Melancholy, introvert, INTP|
-- |i'll post here occasionally,so din't expect any cool stuff here|
+- | minor ✿ rarely draw ᘛ⁐̤ᕐᐷ |
+- |i'll post here occasionally, so don't expect any cool stuff here|
 - |;]|
 
  ˗ˏˋ ★ ˎˊ˗
